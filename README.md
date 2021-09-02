@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Natalie Royal (@nrroyal18)
+- 👀 I’m interested in user interface and user experience research and development
+- 🌱 I'm currenty a junior at Penn State studying Human-Centered Design and Development with a minor in Security and Risk Analysis
+- 📫 Reach out: nrroyal18@gmail.com
